@@ -1,4 +1,4 @@
-francisc here! or fran fran, i am an artists that loves ponytown, feel free to draw or read my strawpage!
+francisc here! or fran fran, i am an artist that loves ponytown, feel free to draw or read my strawpage!
 
 <!---
 faebastian/faebastian is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
