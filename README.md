@@ -2,7 +2,7 @@ francisc here!! feel free to make up nicknames lol,, im on pt basically 24/7 !! 
 
 - major anya kin,, dont insult, bully, or nitpick at my favorite characters when talking to me !! its a major trigger
 
-- youll mostly see me in anya, junko, mikan, or chiaki cosplay ! 
+- youll mostly see me in anya, junko, mikan, cyn/thesolver cosplay !! 
 
 - half the time im dniuc, or dni entirely, you can always cuddle and hide with me !! but do not interact
 
