@@ -10,7 +10,7 @@ I LOOOOVEE MYSELF!✮⋆˙ (half my fucking alters)
 
 sensitive . ALWAYS c + h encouraged ! ✮⋆˙ trust 
 
-**strictly** he/her/thy ONLY ! ⌗⌗ ⪩. .⪨
+**strictly** he/her/thy (thy, not they, thy, as in thy/thou/thee) ONLY ! ⌗⌗ ⪩. .⪨
 
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ─────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ─
 
