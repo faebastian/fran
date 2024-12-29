@@ -12,6 +12,8 @@ sensitive . ALWAYS c + h encouraged ! ✮⋆˙ trust
 
 **strictly** he/her/thy (thy, not they, thy, as in thy/thou/thee) ONLY ! ⌗⌗ ⪩. .⪨
 
+do **not** capitalize my name or anything when referring to me ! - our full system ^^
+
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ─────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ─
 
 ☆⌒(ゝ。∂) <<---- this is so me 
