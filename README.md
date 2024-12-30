@@ -20,4 +20,4 @@ do **not** capitalize my name or anything when referring to me ! - our full syst
 
 ☆⌒(ゝ。∂) <<---- this is so me 
 
-![alt text](https://cdn.discordapp.com/attachments/1318915999315263501/1322172072377581588/yes.gif?ex=676fe832&is=676e96b2&hm=b4d0e1bde64d68fe72537197aaf0c61cfa99bdf094e6a2ae8b072f90eb8d9bf8&)
+![alt text](https://cdn.discordapp.com/attachments/1318915999315263501/1323394148799221790/yes.gif?ex=67745a58&is=677308d8&hm=709b8f6d4160fcc26cb40c6d744fe28e6780510d8c807f5415404bcc47030351&0)
