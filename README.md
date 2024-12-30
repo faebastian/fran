@@ -10,6 +10,8 @@ I LOOOOVEE MYSELF!✮⋆˙ (half my fucking alters)
 
 sensitive . ALWAYS c + h encouraged ! ✮⋆˙ trust 
 
+typing quirk - i describe my actions during conversations ⊹˚. ♡.𖥔 ݁ ˖
+
 **strictly** he/her/thy (thy, not they, thy, as in thy/thou/thee) ONLY ! ⌗⌗ ⪩. .⪨
 
 do **not** capitalize my name or anything when referring to me ! - our full system ^^
