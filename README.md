@@ -12,6 +12,8 @@ sensitive . ALWAYS c + h encouraged ! ✮⋆˙ trust
 
 typing quirk - i describe my actions during conversations ⊹˚. ♡.𖥔 ݁ ˖
 
+![alt text](https://cdn.discordapp.com/attachments/1318915999315263501/1323395118383763528/heart-8bit.gif?ex=67745b3f&is=677309bf&hm=edc48a1cfe8b59ee17be1d12c4c571e9426a4cfddccf2284d239460953fa5239&)
+
 **strictly** he/her/thy (thy, not they, thy, as in thy/thou/thee) ONLY ! ⌗⌗ ⪩. .⪨
 
 do **not** capitalize my name or anything when referring to me ! - our full system ^^
