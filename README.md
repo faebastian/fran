@@ -23,3 +23,12 @@ do **not** capitalize my name or anything when referring to me ! - our full syst
 ☆⌒(ゝ。∂) <<---- this is so me 
 
 ![alt text](https://cdn.discordapp.com/attachments/1318915999315263501/1323394148799221790/yes.gif?ex=67745a58&is=677308d8&hm=709b8f6d4160fcc26cb40c6d744fe28e6780510d8c807f5415404bcc47030351&0)
+
+────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ─────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ─
+
+random notes --
+
+૮₍≧ꕀ≦₎ა "why do you not want your names / nouns capitalized?" BECAUSE iM NOT SUPPOSED TO BE A CONCIOUSLY KNOWLEDGED BEING!!! /hj || i am supposed to be a random ghostly figure that lingers in your area. not a mind encapturing concept (╥﹏╥) 
+
+ᓚ₍⑅^..^₎♡ 17 is such a cursed age/number??.. atp, im really just surviving till 17 to see how shit it truly is ( ≧ᗜ≦)
+
