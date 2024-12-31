@@ -1,4 +1,5 @@
 ![alt text](https://cdn.discordapp.com/attachments/1318915999315263501/1322172025388925018/needy-streamer-overload-kangel.gif?ex=676fe827&is=676e96a7&hm=67c3703c660fbfd8e1261fbb23774d43195676c4d2497f553a051d842fa8039f&)
+**IMMEDIATE DNI IF YOURE A PRO/DARKSHIPPER .**
   . . .stupid nerd ! -- DIGI SYS
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ─────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ─
 
