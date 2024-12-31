@@ -28,7 +28,7 @@ do **not** capitalize my name or anything when referring to me ! - our full syst
 
 random notes --
 
-૮₍≧ꕀ≦₎ა "why do you not want your names / nouns capitalized?" BECAUSE iM NOT SUPPOSED TO BE A CONCIOUSLY KNOWLEDGED BEING!!! /hj || i am supposed to be a random ghostly figure that lingers in your area. not a mind encapturing concept (╥﹏╥) 
+૮₍≧ꕀ≦₎ა "why do you not want your names / nouns capitalized?" BECAUSE iM NOT SUPPOSED TO BE A CONCIOUSLY KNOWLEDGED BEING!!! /hj || i am supposed to be a random ghostly figure that lingers in your area. not a mind living concept (╥﹏╥) 
 
 ᓚ₍⑅^..^₎♡ 17 is such a cursed age/number??.. atp, im really just surviving till 17 to see how shit it truly is ( ≧ᗜ≦)
 
